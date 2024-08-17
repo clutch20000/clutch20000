@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @clutch20000
+- 👀 I’m interested in gaming and VR
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on VR GT mods
+- 📫 How to reach me Kasenweathers@gmail.com
+- 😄 Pronouns:HE/HIM
+- ⚡ Fun fact: I love monkeys
